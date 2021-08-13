@@ -5,4 +5,4 @@
 
 📞 Puedes contactarme por:
   - Discord: **xo.deto#6396**
-  - Twitter: **https://twitter.com/detoneke**
+  - Twitter: **https://twitter.com/realxode**
